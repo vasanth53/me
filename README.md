@@ -1,4 +1,4 @@
-# Game Developer Extraordinaire and Chief Pixel Wizard
+# Game Developer Extraordinaire and Pixel Wizard
 
 ## About Me
 
